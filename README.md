@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning Nothing right now
 - 💞️ I’m looking to collaborate on making an fnf mod
-- 📫 How to reach me Gachakyrabeddell@gmail.com or @etsukoreiiiii@gmail.com
+- 📫 How to reach me Gachakyrabedell@gmail.com or @etsukoreiiiii@gmail.com
 
 <!---
 Moldyasfcheese/Moldyasfcheese is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
